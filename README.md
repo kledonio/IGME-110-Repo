@@ -6,4 +6,4 @@ meeeeeeooooowwwwwwwwwwww holy cannoli!!!!!!!!!
 - i leg press 235lbs
 
   ### awesome sauce
-  ![she's not hip hop ☹️] (https://i.imgur.com/col1EDl.png)
+  ![she's not hip hop ☹️](https://i.imgur.com/col1EDl.png)
